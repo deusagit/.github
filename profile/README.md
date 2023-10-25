@@ -1,1 +1,1 @@
-![github-social-preview](https://github.com/deusagit/.github/assets/79719348/fdefd2e9-a456-42c8-b7d7-9fbe030a3e1c)
+![github-social-preview](https://github.com/deusagit/.github/assets/79719348/c56279ab-46a5-49e9-99c5-449e1d0f7429)
